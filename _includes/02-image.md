@@ -1,0 +1,1 @@
+![Image of Rocky Mountain](https://images.pexels.com/photos/3312569/pexels-photo-3312569.jpeg)
